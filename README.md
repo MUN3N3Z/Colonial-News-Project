@@ -1,2 +1,2 @@
-#### Exhibit Title: American Samoa and the Adoption of American Popular Culture
+## Exhibit Title: American Samoa and the Adoption of American Popular Culture
 This exhibit explores the complex relationship between the U.S. colonization of American Samoa and the adoption of American popular culture by Samoans. The economic dependence of American Samoa on the U.S. has created a structural situation in which Samoans are constantly surrounded by American products and this has increased their cultural relevance on the island.
